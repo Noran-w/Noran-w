@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Noran-w
-- 👀 I’m  WEB/APP Develpment.
+- 👀 I’m  UI/UX Designer and Front-End Developer.
 - 📫 How to reach me ?
 insta: noran_wk
 behance: noranwaleed15

@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Noran-w
+- 👋 Hi, I’m Noran
 - 👀 I’m  UI/UX Designer and Front-End Developer.
 - 📫 How to reach me ?
 insta: noran_wk
